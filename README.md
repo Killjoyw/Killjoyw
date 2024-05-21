@@ -1,7 +1,7 @@
-- � Hi, I’m @Killjoyw
-- � I’m interested in... Redheads and in programming
+- � Hi, I’m @Plata
+- � I’m interested in... programming
 - I’m currently learning ... languages
-- I’m looking to collaborate on ... nothing
+- I’m looking to collaborate on ... projects
 - � How to reach me ... Just send a message and I'll get back to you
 
 <!---
